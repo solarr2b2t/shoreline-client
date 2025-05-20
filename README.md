@@ -3,3 +3,5 @@
 
 
 I GOT MORE PEBBLES THEN THE COLLECTOR
+![image](https://github.com/user-attachments/assets/959bbec3-eaef-4b8c-acd5-05364b0c2de1)
+SHOUTOUT THE RUSSIANS FOR THE 5K DEAL LOLOLOL
