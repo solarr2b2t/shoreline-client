@@ -1,5 +1,6 @@
 # shoreline-client
 ![image](https://github.com/user-attachments/assets/a14e2df1-62a7-4f36-8851-f347f953ae18)
+# RELEASING LOADER (RUST) AT 50 STARS
 
 
 I GOT MORE PEBBLES THEN THE COLLECTOR
@@ -8,4 +9,3 @@ SHOUTOUT THE RUSSIANS FOR THE 5K DEAL LOLOLOL
 
 
 
-# RELEASING LOADER (RUST) AT 50 STARS
